@@ -1,1 +1,1 @@
-https://dev-mosa.github.io/smoothie-elzoz/
+https://dev-mosa.github.io/Smoothie-Elzoz/
